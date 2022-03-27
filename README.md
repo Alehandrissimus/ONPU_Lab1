@@ -1,0 +1,1 @@
+ONPU Lab 1 Buryachenko Olexiy AI-194
